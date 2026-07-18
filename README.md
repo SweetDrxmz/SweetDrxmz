@@ -25,4 +25,4 @@ When you first meet me, I might seem a little quiet, but once I become comfortab
 Thank you for taking the time to read this. I hope we can be friends and have fun together! ♡
 
 ![Image](https://github.com/user-attachments/assets/2e28567d-cb9d-49d7-b44e-1131acac52d9)
-## Luv Phainon>< .𐙚 ̊𓂃˖˳·˖ ִֶָ ⋆
+
