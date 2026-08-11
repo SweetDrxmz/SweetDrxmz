@@ -18,8 +18,6 @@ Normally, people would see me sitting quietly, haha. I'm the shy type, even thou
 
 Sometimes I'm AFK because I'm busy with other things. If you send me a message and I don't reply right away, please don't worry—I’ll get back to you when I can. ♡ (please leave me a whis,w2i hehe₍^. .^₎Ⳋ)
 
-When you first meet me, I might seem a little quiet, but once I become comfortable with you, I'll be much more talkative and energetic!
-
 ## And that's some information about me, hehe.>⩊<.ᐟ
 
 Thank you for taking the time to read this. I hope we can be friends and have fun together! ♡
