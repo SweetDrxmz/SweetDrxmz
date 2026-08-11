@@ -18,6 +18,58 @@ Normally, people would see me sitting quietly, haha. I'm the shy type, even thou
 
 Sometimes I'm AFK because I'm busy with other things. If you send me a message and I don't reply right away, please don't worry—I’ll get back to you when I can. ♡ (please leave me a whis,w2i hehe₍^. .^₎Ⳋ)
 
+## About My Fandom ᯓ★
+
+I’m mainly in the Genshin Impact, Honkai Star Rail, and Zenless Zone Zero fandoms.
+
+However, I don’t cosplay char from Zenless Zone Zero, and I’ve stopped playing the game for quite a while ago, because my phone ran out of storage (╥﹏╥)
+
+## As for my favorite OTPs from each game:
+
+★ Genshin Impact ★
+
+- Xiaother
+- KazuHei
+- WrioNeu
+- Panttore
+- Tartali
+- VarFlins
+- HaiKaveh
+
+★ Honkai: Star Rail ★
+
+- Phaidei
+- JingLuo / LuoJing
+- RenHeng
+- Ratiorine
+- Argenthill
+- Sampark
+
+★ Zenless Zone Zero ★
+
+- LycaonHugo
+- HaruWise
+
+NOTP 💔
+
+I don’t dislike or hate these ships! I simply don’t like them personally, so please don’t hate me for it! (╥﹏╥)
+
+★ Genshin Impact ★
+
+- Xiaolumi
+- Chilumi
+- AyatoMiko
+- Neufuri
+- ......
+
+★ Honkai: Star Rail ★
+
+- DanhengStelle...
+
+★ Zenless Zone Zero ★
+
+I don’t play this game anymore, so I don’t have any NOTPs here ><
+
 ## And that's some information about me, hehe.>⩊<.ᐟ
 
 Thank you for taking the time to read this. I hope we can be friends and have fun together! ♡
