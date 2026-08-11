@@ -36,7 +36,7 @@ However, I don’t cosplay char from Zenless Zone Zero, and I’ve stopped playi
 - VarFlins
 - HaiKaveh
 
-★ Honkai: Star Rail ★
+★ Honkai Star Rail ★
 
 - Phaidei
 - JingLuo / LuoJing
