@@ -16,7 +16,7 @@ Normally, people would see me sitting quietly, haha. I'm the shy type, even thou
 
 <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/03ff60a5-6c15-4047-9b76-faeb5655b229" />
 
-Sometimes I'm AFK because I'm busy with other things. If you send me a message and I don't reply right away, please don't worry—I’ll get back to you when I can. ♡ (please leave me a whis,w2i hehe₍^. .^₎Ⳋ)
+Sometimes I'm AFK because I'm busy with other things. If you send me a message and I don't reply right away, please don't worry I’ll get back to you when I can. ♡ (please leave me a whis,w2i hehe₍^. .^₎Ⳋ)
 
 ## About My Fandom ᯓ★
 
@@ -50,9 +50,9 @@ However, I don’t cosplay char from Zenless Zone Zero, and I’ve stopped playi
 - LycaonHugo
 - HaruWise
 
-NOTP 💔
+𝙉𝙊𝙏𝙋 💔
 
-I don’t dislike or hate these ships! I simply don’t like them personally, so please don’t hate me for it! (╥﹏╥)
+𝙉𝙤 𝙩𝙤𝙭𝙞𝙘, please I don’t dislike or hate these ships! I simply don’t like them personally, so please don’t hate me for it! (╥﹏╥)
 
 ★ Genshin Impact ★
 
@@ -62,7 +62,7 @@ I don’t dislike or hate these ships! I simply don’t like them personally, so
 - Neufuri
 - ......
 
-★ Honkai: Star Rail ★
+★ Honkai Star Rail ★
 
 - DanhengStelle...
 
