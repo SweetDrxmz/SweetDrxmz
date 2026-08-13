@@ -25,7 +25,7 @@ I’m mainly in the $${\color{#89B9B8} Genshin }$$ $${\color{#6597A5} Impact }$$
 However, I don’t cosplay char from Zenless Zone Zero, and I’ve stopped playing the game for quite a while ago, because my phone ran out of storage (╥﹏╥)
 ## $${\color{#CF8A8C} As }$$ $${\color{#C4748B} for }$$ $${\color{#BA5F91} my }$$ $${\color{#B04D9B} favorite}$$ $${\color{#A03BA5} OTPs}$$ $${\color{#792C9B} from}$$ $${\color{#932991} each }$$ $${\color{#681F7E} game:}$$
 
-$${\color{#DED08A}★}$$ $${\color{#89B9B8}Genshin}$$ $${\color{#6597A5}Impact}$$, $${\color{#DED08A}★}$$
+$${\color{#DED08A}★}$$ $${\color{#89B9B8}Genshin}$$ $${\color{#6597A5}Impact}$$ $${\color{#DED08A}★}$$
 
 - Xiaother
 - KazuHei
@@ -53,7 +53,7 @@ $${\color{#FF457C} 𝙉𝙊𝙏𝙋}$$ 💔
 
 𝙉𝙤 𝙩𝙤𝙭𝙞𝙘, please I don’t dislike or hate these ships! I simply don’t like them personally, so please don’t hate me for it! (╥﹏╥)
 
-$${\color{#DED08A} ★}$$ $${\color{#89B9B8} Genshin }$$ $${\color{#6597A5} Impact }$$, $${\color{#DED08A} ★}$$
+$${\color{#DED08A} ★}$$ $${\color{#89B9B8} Genshin }$$ $${\color{#6597A5} Impact }$$ $${\color{#DED08A} ★}$$
 
 - Xiaolumi
 - Chilumi
