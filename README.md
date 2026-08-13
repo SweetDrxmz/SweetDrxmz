@@ -2,7 +2,7 @@
 
  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠♡](https://sweetdrxmz.atabook.org/) 
  
-## $${\color{#A2D9E4} ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ𐙚}$$
+## $${\color{#A2D9E4} Welcome! ᰔ}$$
    [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&width=435&separator=%3C&lines=Hello!+thank+for+visiting+my+page.%3CI'm+not+good+at+English;-;%3C%E0%B4%A6%E0%B5%8D%E0%B4%A6%E0%B4%BF%E2%97%9D+%E2%A9%8A+%E2%97%9C.%E1%90%9FGoogle+Translate+was+used.%3CPlease+be+understanding+towards+me.)](https://git.io/typing-svg)
 
 ## $${\color{#A2D9E4} Let }$$ $${\color{#BAB6D4} me }$$ $${\color{#7491C3} introduce}$$ $${\color{#606BB3} myself }$$ $${\color{#5B3E92} ᯓᡣ𐭩}$$
