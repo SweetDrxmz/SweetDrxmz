@@ -22,7 +22,7 @@ Sometimes I'm AFK because I'm busy with other things. If you send me a message a
 
 I’m mainly in the $${\color{#89B9B8} Genshin }$$ $${\color{#6597A5} Impact }$$, $${\color{#E9B2A5} Honkai}$$ $${\color{#D3848C} Star}$$ $${\color{#BE6788} Rail }$$ and $${\color{#B592AB} Zenless}$$ $${\color{#94618B} Zone }$$  $${\color{#733A6E} Zero }$$ fandoms.
 
-However, I don’t have character from Zenless Zone Zero, and I’ve stopped playing the game for quite a while ago, because my phone ran out of storage (╥﹏╥)
+However, I don’t have skin character from Zenless Zone Zero, and I’ve stopped playing the game for quite a while ago, because my phone ran out of storage (╥﹏╥)
 ## $${\color{#CF8A8C} As }$$ $${\color{#C4748B} for }$$ $${\color{#BA5F91} my }$$ $${\color{#B04D9B} favorite}$$ $${\color{#A03BA5} OTPs}$$ $${\color{#792C9B} from}$$ $${\color{#932991} each }$$ $${\color{#681F7E} game:}$$
 
 $${\color{#DED08A}★}$$ $${\color{#89B9B8}Genshin}$$ $${\color{#6597A5}Impact}$$ $${\color{#DED08A}★}$$
