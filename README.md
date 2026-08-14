@@ -29,6 +29,7 @@ $${\color{#DED08A}★}$$ $${\color{#89B9B8}Genshin}$$ $${\color{#6597A5}Impact}$
 
 - Xiaother
 - KazuHei
+- TomoKazu
 - WrioNeu
 - Panttore
 - Tartali
