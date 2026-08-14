@@ -43,6 +43,7 @@ $${\color{#DED08A} ★}$$ $${\color{#E9B2A5} Honkai}$$ $${\color{#D3848C} Star}$
 - RenHeng
 - Ratiorine
 - Argenthill
+- Galladay
 - Sampark
 
 $${\color{#DED08A} ★}$$ $${\color{#B592AB} Zenless}$$ $${\color{#94618B} Zone }$$  $${\color{#733A6E} Zero }$$ $${\color{#DED08A} ★}$$
