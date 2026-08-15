@@ -80,7 +80,7 @@ Thank you for taking the time to read this. I hope we can be friends and have fu
 
 <img width="800" height="300" alt="Image" src="https://github.com/user-attachments/assets/a217f935-192f-4b5a-a96b-67b519719eff" />
 
-
+ $${\color{#88304D} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨}$$
 
 https://github.com/user-attachments/assets/d843dbaf-857d-4fc6-8abb-72040e6c9118
 
