@@ -74,4 +74,9 @@ I don’t play this game anymore, so I don’t have any NOTPs here ><
 
 Thank you for taking the time to read this. I hope we can be friends and have fun together! ♡
 
+## $${\color{#F9CCE1} Grey-D -}$$ $${\color{#DEA1CE} dự}$$ $${\color{#C27AC3}  báo}$$ $${\color{#9059A7} thời}$$ $${\color{#5F3D8C} tiết}$$ $${\color{#312671} hôm}$$ $${\color{#151D55} nay}$$ $${\color{#2F0868} mưa}$$
+
+<img width="700" height="330" alt="Image" src="https://github.com/user-attachments/assets/a217f935-192f-4b5a-a96b-67b519719eff" />
+
 https://github.com/user-attachments/assets/d843dbaf-857d-4fc6-8abb-72040e6c9118
+ 
