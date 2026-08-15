@@ -80,5 +80,10 @@ Thank you for taking the time to read this. I hope we can be friends and have fu
 
 <img width="800" height="300" alt="Image" src="https://github.com/user-attachments/assets/a217f935-192f-4b5a-a96b-67b519719eff" />
 
+
+
 https://github.com/user-attachments/assets/d843dbaf-857d-4fc6-8abb-72040e6c9118
- 
+
+ <img width="504" height="298" alt="Image" src="https://github.com/user-attachments/assets/ee0740ca-8972-49f5-a4ae-e4ce9cc8785f" />
+ <img width="504" height="298" alt="Image" src="https://github.com/user-attachments/assets/c9b63d93-9688-4a87-b1d9-31f82da9798f" />
+ <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/0d84bf61-1a96-42e9-8737-76a09b022cae" />
