@@ -27,6 +27,7 @@ However, I don’t have skin character from Zenless Zone Zero, and I’ve stoppe
 
 $${\color{#DED08A}★}$$ $${\color{#89B9B8}Genshin}$$ $${\color{#6597A5}Impact}$$ $${\color{#DED08A}★}$$
 
+- Dainther
 - Xiaother
 - KazuHei
 - TomoKazu
